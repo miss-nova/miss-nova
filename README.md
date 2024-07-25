@@ -3,4 +3,4 @@
 - i'm 16 years old
 - discord: @n0vaur
 - she/her
-- the co-founder of Black Espresso Productions and the founder of Glitchy!
+- the co-founder of Black Espresso Productions!
