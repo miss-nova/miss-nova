@@ -2,4 +2,4 @@
 - i'm currently interested in my own passions such as changing the world for the better
 - discord: @n0vaur
 - he/him
-- the co-founder of Black Espresso!
+- the founder of Black Espresso!
